@@ -1,8 +1,9 @@
-**IoT Platform & Cloud Lead | Embedded, Backend & AWS Systems**
+### IoT Platform & Cloud Lead  
+**Embedded Systems • Backend Platforms • AWS Cloud**
 
-📍 India | 📧 sangwan.vinesh@gmail.com | 📞 +91-9899176114  
-🔗 https://www.linkedin.com/in/vinesh-sangwan-3215474b/
-
+📍 **India** |
+📧 **sangwan.vinesh@gmail.com** | 📞 **+91-9899176114**  
+🔗 **LinkedIn:** https://www.linkedin.com/in/vinesh-sangwan-3215474b/
 ---
 
 ## Leadership Summary
